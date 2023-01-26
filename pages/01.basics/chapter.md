@@ -7,6 +7,6 @@ child_type: docs
 
 ### Chapter 1
 
-# Basics
+# Basics Mi-iMind Mindful 1st emergent knowledge solutions
 
-Discover the **basic** principles
+Discover the **basic** conceptions

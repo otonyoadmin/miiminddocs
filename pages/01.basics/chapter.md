@@ -1,12 +1,12 @@
 ---
-title: Basics
+title: 'A Brief Introduction for now'
 taxonomy:
     category: docs
 child_type: docs
 ---
 
-### Chapter 1
+### Introduction
 
-# Basics Mi-iMind Mindful 1st emergent knowledge solutions
-
-Discover the **basic** conceptions
+# Mi-iMind Mindful 1st
+Emergent Knowledge Flow Solutions
+For Professional Knowledge Work

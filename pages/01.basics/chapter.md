@@ -7,7 +7,7 @@ child_type: docs
 
 ### Introduction
 
-# Mi~iMind Mindful 1<sup>st</sup>
+# Mi~iMind Mindful 1 <sup>st</sup>
 
 ### Emergent Knowledge Flow Solutions
 ### For Professional Knowledge Work

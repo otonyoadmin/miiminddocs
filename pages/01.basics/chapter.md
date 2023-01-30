@@ -11,4 +11,4 @@ child_type: docs
 
 ### Emergent Knowledge Flow Solutions
 ### For Professional Knowledge Work
-### Act as is not as if!
+### Act as is, not as if!

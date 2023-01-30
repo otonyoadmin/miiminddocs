@@ -5,7 +5,9 @@ taxonomy:
         - docs
 ---
 
-Mi-iMind provides a method for self validating and processing continuously emergent knowledge in a human Me-Mind. The solutions leverages synergies using a profound paradigm shift for internalizing EmptiSelf conception and current process management solutions which make it possible to map iterative ever better development locally using lived experience in relationship with iStats of awareness.
+Mi-iMind provides a method for self validating, processing and managing continuously emergent knowledge in a human Me-Mind. 
+
+The solutions enable new synergies using a profound paradigm shift for internalizing EmptiSelf conception based upon the Doubtless Self conception that emerges from the intellectual understandiing of the  Buddhist heart sutra and current process management solutions which make it possible to map iterative ever better development locally using lived experience in relationship with iStats of awareness.
 The synergies are made available in a fundamentality new format of designation using number rooted names in which enable infinite inner inclusion of Me-Mind iStates.
 It can be helpful to think of iStates as both atomic and molecular in nature if we want we can think of them as chemical and biological or as complex recurring patterned entities that we name Personas.
 The eschewing of the persona bound self conception presents real tangible problems for a Me-Mind that wants to follow the knowledge flow as it emerges in each of us in our private minds' each living one time forward lifetime. The broken hearted teenager in the Me-Mind of my past crest fallen at the end of the first true romance in the world overcomes the isolation in survival mode. The first time in the Me-Mind alone in anguish and anger when the language being heard is more like cackle than useable wisdom as the self within reveals its nature again as never only that iState of yesterday there is always another peace in Me-Mind..

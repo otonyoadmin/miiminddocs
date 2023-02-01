@@ -10,5 +10,6 @@ child_type: docs
 # Mi~iMind Mindful 1st
 
 ### Emergent Knowledge Flow Solutions
-### For Professional Knowledge Work
-### Act as is, not as if!
+### Understand 50 % Faster
+### Suitable for Professional Knowledge Work
+### Process Orientations Enables Process Management

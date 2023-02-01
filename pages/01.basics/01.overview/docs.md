@@ -5,7 +5,15 @@ taxonomy:
         - docs
 ---
 
-Mi-iMind provides a method for self validating, processing and managing continuously emergent knowledge in a human Me-Mind. 
+Mi-iMind provides a method for self validating, processing and managing continuously emergent knowledge in a human Me-Mind, living one time forward lifetime.
+
+Process management of complex systems has advanced in leaps and bounds over the past 30 years in particular and coupled with our understanding of how information can be scientifically traced as energy presents new possibilities for emergent knowledge flow management using process controls.
+Mi-iMind provides a framework for managing the information gathered in lived experiences while identifying how knowledge is being polluted by the will bound to to debunked sunken values.
+
+The messy and often hidden challenge that has continued to pollute emergent knowledge is the human self conception carried in persona bound self conceptions. Self conceptions rooted in narrative identities create sunken value commitments in personal narratives. This is very obvious is our public and private lives where we can obsess about the names that other call us including terms like nig*er which are so offensive and genuinely painful for some to encounter that they cannot even be written without understandable censure in social media.
+
+
+Arguments concerning how to interpret emergent knowledge such as climate change or celebrity culture have been mired in notions of the human as the root centre of meaning
 
 The solutions enable new synergies using a profound paradigm shift for internalizing EmptiSelf conception based upon the Doubtless Self conception that emerges from the intellectual understandiing of the  Buddhist heart sutra and current process management solutions which make it possible to map iterative ever better development locally using lived experience in relationship with iStats of awareness.
 The synergies are made available in a fundamentality new format of designation using number rooted names in which enable infinite inner inclusion of Me-Mind iStates.

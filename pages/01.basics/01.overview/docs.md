@@ -7,6 +7,7 @@ taxonomy:
 
 Mi-iMind provides a method for self validating, processing and managing continuously emergent knowledge in a human Me-Mind, living one time forward lifetime.
 iStates are used as designators that can use complex numbers and or names of attention bound awareness events in time within the one time forward lived experience lifetime of the individual Me-Mind.
+It is essential to see that the differences between this approach and the western 5 stages of psychology developed is not concerned with the history and past it is only concerned with the present. In as much as a current autobiograbhy will reveal great insight into the patterns in the current Me-Mind the story of the present as it relates to the past o
 
 The transition from ego bound personal I self conception provides direct challenges from within the individual Me-Mind for all who would choose to process emergent knowledge using these more inclusive frameworks and networked solutions.
 

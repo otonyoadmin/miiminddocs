@@ -6,6 +6,12 @@ taxonomy:
 ---
 
 Mi-iMind provides a method for self validating, processing and managing continuously emergent knowledge in a human Me-Mind, living one time forward lifetime.
+iStates are used as designators that can use complex numbers and or names of attention bound awareness events in time within the one time forward lived experience lifetime of the individual Me-Mind.
+
+The transition from ego bound personal I self conception provides direct challenges from within the individual Me-Mind for all who would choose to process emergent knowledge using these more inclusive frameworks and networked solutions.
+
+What may be a surprise for some mathematics and analytic philosophy enthusiasts is the use of concepts like compassion as part of a knowledge system that essentially treats the subjects and objects of the mind as vacuous delusions to be dissolved. Inner perceptions of sunken values privately influence the emergent knowledge flow. We are all familiar with the 'I' that stays in a couple for the sake of the kids yet the two individuals are not doing the same thing for the same reason. Senior corporate management very often obfuscate lie and deny the actualities for the sake of the institution or the perceived functions of the institution in the case of Religious institutional corruption of emergent knowledge flow.   
+
 
 Process management of complex systems has advanced in leaps and bounds over the past 30 years in particular and coupled with our understanding of how information can be scientifically traced as energy presents new possibilities for emergent knowledge flow management using process controls.
 Mi-iMind provides a framework for managing the information gathered in lived experiences while identifying how knowledge is being polluted by the will bound to to debunked sunken values.

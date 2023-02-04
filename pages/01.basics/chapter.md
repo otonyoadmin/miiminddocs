@@ -6,10 +6,10 @@ child_type: docs
 media_order: ddposter1.png
 ---
 
-[](ddposter1.png)
 ### Introduction
+![](ddposter1.png)
 
-# Mi~iMind Mindful 1st!
+# Mi~iMind Mindful 1st
 
 ### Emergent Knowledge Flow Solutions
 ### Understand 50 % Faster

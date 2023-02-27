@@ -8,9 +8,10 @@ media_order: ddposter1.png
 
 ### Introduction
 
-# Mi~iMind Mindful 1 <sup>ST</sup>
+# Mi~iMind Mindful 1 ST _Inside_
 
 ### Emergent Knowledge Flow Solutions
 ### Understand 50 % Faster
 ### Suitable for Professional Knowledge Work
 ### Process Orientations Enables Process Management
+### Not suitable for human development systems using persona, Meme bound or language name bound self conceptions

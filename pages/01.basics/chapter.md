@@ -8,7 +8,7 @@ media_order: ddposter1.png
 
 ### Introduction
 
-# Mi~iMind Mindful 1 <sup>st _**inside**_</sup>**
+# Mi~iMind Mindful 1 <sup>st _inside_</sup>
 
 ### Emergent Knowledge Flow Solutions
 ### Understand 50 % Faster

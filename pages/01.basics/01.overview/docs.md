@@ -5,8 +5,8 @@ taxonomy:
         - docs
 ---
 
-### Process Orientations Enables Process Management
-### Not suitable for human development systems using persona, Meme bound or language name bound self conceptions
+##### Doubtless Self conception, enables process orientation that offers the space effortlessly in the present that makes thresholds and process management possible using ground up feedback from clear core iStates.
+##### The increased awareness capacity required to manage providing space in the present is beyond the capacities of human development systems using persona, Meme bound or language name bound, self limiting, self conceptions.
 
 Full Spectrum Servant Leadership enabling modalities with infinitely inclusive dynamic processing and adaptation management.
 Superior Cognitive Processing framework integrates seamlessly using Doubtless Self Conception and the insights of modern pragmatism solutions to enable active self correcting error processing.

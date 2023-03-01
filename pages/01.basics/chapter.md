@@ -10,7 +10,7 @@ media_order: ddposter1.png
 ##### Desire Dinamics  -_finding yes in a human Me-Mind_
 #####  Mindful 1st  -_Ontology for mothering present process purpose_
 ##### EmptiSelf Conception  -_anti-fragile process orientation_
-#### Mi~iMind  -_Clear Core iStates_
+#### Mi~iMind  -_Clear Core iStates for ground up feedback_
 
 #### Phase 1 Beta development OTE understand 50 % Faster
 #### Suitable for cross disciplinary professional knowledge work including leadership skill development

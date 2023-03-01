@@ -1,5 +1,5 @@
 ---
-title: 'A Brief Introduction'
+title: 'A Brief Introduction - iStates, wonderful tool in a box'
 taxonomy:
     category: docs
 child_type: docs

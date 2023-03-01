@@ -6,7 +6,7 @@ child_type: docs
 media_order: ddposter1.png
 ---
 
-#### Introducing NEW FOR NOW, emergent knowledge flow solutions
+#### **introducing** NEW FOR NOW, emergent knowledge flow solutions
 ##### Desire Dinamics  -_finding yes in a human Me-Mind_
 #####  Mindful 1st  -_Ontology for mothering present process purpose_
 ##### EmptiSelf Conception  -_anti-fragile process orientation_

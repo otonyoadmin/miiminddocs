@@ -14,3 +14,4 @@ media_order: ddposter1.png
 
 #### Phase 1 Beta development OTE understand 50 % Faster
 #### Suitable for cross disciplinary professional knowledge work including leadership skill development
+the best knowledge in the world now for the sharpest tools in the box
